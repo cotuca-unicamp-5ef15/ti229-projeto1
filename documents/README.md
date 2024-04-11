@@ -1,1 +1,0 @@
-O modelo do roteiro de projeto está disponível em http://bit.ly/wait-next-class.
